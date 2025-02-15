@@ -1,0 +1,1 @@
+This project was made by Danechka, please do not copy my code to other sites under the pretext of your own!! My account is on rscripts.net, https://rscripts.net/@danechka. YouTube channel: https://www.youtube.com/@MiNeXGames. Thank you if you did not pass by my words, and do not copy-paste my project!
